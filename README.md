@@ -27,9 +27,16 @@ Our goal is to create value for our clients while contributing positively to com
 ✅ Trustworthy partnerships  
 ✅ Commitment to excellence  
 
-## Contact Us
+## Contact Us & Social Media
 
-For more information about our services, please reach out to us.
+We are available on multiple platforms where customers can easily interact with us, make inquiries, and receive timely assistance:
+
+- 📘 **Facebook** - Connect with us for updates and news
+- 𝕏 **Twitter (X)** - Follow for latest announcements
+- 💬 **WhatsApp** - Direct messaging and customer support
+- 🌐 **Other Social Media** - Find us across various platforms
+
+For more information about our services, please reach out to us through any of these channels!
 
 ---
 
